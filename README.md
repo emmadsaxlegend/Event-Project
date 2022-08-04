@@ -1,2 +1,2 @@
 # Event-Project
-![alt text](https://dullmensclub.com/this-is-our-new-website-bits-of-it-are-still-under-construction-but/)
+![alt text](https://dullmensclub.com/new/wp-content/uploads/fullsizeoutput_68db.jpeg)
